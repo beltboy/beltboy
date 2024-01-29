@@ -4,7 +4,7 @@ Hid beneath disguises"</i><br>
 </p>
 
 <p align="center">
-      <img src="https://github.com/beltboy/beltboy/assets/126973284/4e6ce219-1620-4ef5-b0ff-bbf905f9674a"/>
+      <img src="https://github.com/beltboy/beltboy/assets/126973284/665aff41-9ee4-46ff-ab27-610754a39a14"/>
 </p>
 
 <p align="center">
