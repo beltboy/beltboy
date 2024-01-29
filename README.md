@@ -4,7 +4,7 @@ Hid beneath disguises"</i><br>
 </p>
 
 <p align="center">
-      <img src="https://github.com/beltboy/read/assets/126973284/2e6be634-d5d0-4f13-b511-5c809cfc7ed9"/>
+      <img src="https://github.com/beltboy/beltboy/assets/126973284/4e6ce219-1620-4ef5-b0ff-bbf905f9674a"/>
 </p>
 
 <p align="center">
@@ -22,3 +22,4 @@ beltboy/dino<br>
 <i>"Judge the world within<br>
 Forgive my deadly sins"</i>
 </p>
+
