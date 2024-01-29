@@ -20,6 +20,6 @@ beltboy/dino<br>
 
 <p align="center">
 <i>"Judge the world within<br>
-Forgive my deadly sins"</i>
+Forgive my deadly <a href="https://www.youtube.com/watch?v=rQ3KdxwgIWs">sins</a>"</i>
 </p>
 
