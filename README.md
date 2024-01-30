@@ -9,8 +9,7 @@ Hid beneath disguises"</i><br>
 
 <p align="center">
 <strong>About me</strong><br>
-beltboy/dino<br>
-  he/it+ <br>
+beltboy/dino || he/it+<br>
   don't copy my skins, you can ask for inspo<br>
   you can sit with me but I don't guarantee I'll talk<br>
   artist, anatomy and music lover<br>
