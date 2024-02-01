@@ -14,7 +14,7 @@ beltboy/dino || he/it+<br>
   you can sit with me but I don't guarantee I'll talk<br>
   artist, anatomy and music lover<br>
   <a href="https://twitter.com/_Dolpha_">twt</a>; <a href="https://www.instagram.com/_dolpha_/">insta</a><br>
- commission sheet (wip)
+<a href="https://rentry.co/commissionsheet">commission sheet</a>
 </p> 
 
 <p align="center">
