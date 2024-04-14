@@ -1,6 +1,6 @@
 <p align="center">
-<i>"Deep fears that drive us <br>
-Hid beneath disguises"</i><br>
+<i>"The rain comes down, cold wind blows <br>
+The plans we made are back up on the road"</i><br>
 </p>
 
 <p align="center">
@@ -18,6 +18,6 @@ beltboy/dino || he/it <a href="https://en.pronouns.page/@beltboy">+</a><br>
 </p> 
 
 <p align="center">
-<i>"Judge the world within<br>
-Forgive my deadly <a href="https://www.youtube.com/watch?v=rQ3KdxwgIWs">sins</a>"</i>
+<i>"Turn up my collar, welcome the unknown<br>
+Remember that you said "One day you'll walk <a href="https://www.youtube.com/watch?v=B-YnLoozIAs">alone</a>"</i>
 </p>
