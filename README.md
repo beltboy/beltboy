@@ -13,6 +13,7 @@ beltboy/dino || he/it <a href="https://en.pronouns.page/@beltboy">+</a><br>
   don't copy my skins, you can ask for inspo<br>
   you can sit with me but I don't guarantee I'll talk<br>
   artist, anatomy and music lover<br>
+      dni if you're proship, profic, whatever, i don't stand for it<br>
   <a href="https://twitter.com/_Dolpha_">twt</a>; <a href="https://www.instagram.com/_dolpha_/">insta</a>; <a href="https://yourmom.123guestbook.com/">guestbook</a><br>
 <a href="https://rentry.co/commissionsheet">commission sheet</a>
 </p> 
