@@ -20,5 +20,5 @@ beltboy/dino || he/it <a href="https://en.pronouns.page/@beltboy">+</a><br>
 
 <p align="center">
 <i>"Turn up my collar, welcome the unknown<br>
-Remember that you said "One day you'll walk <a href="https://www.youtube.com/watch?v=B-YnLoozIAs">alone</a>"</i>
+Remember that you said "One day you'll walk <a href="https://www.youtube.com/watch?v=d8CS_dmC-dI">alone</a>"</i>
 </p>
