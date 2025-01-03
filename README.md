@@ -9,7 +9,7 @@ The plans we made are back up on the road"</i><br>
 
 <p align="center">
 <strong>About me</strong><br>
-beltboy/dino || he/it <a href="https://en.pronouns.page/@beltboy">+</a><br>
+beltboy/dino || 18 || he/him<br>
   don't copy my skins, you can ask for inspo<br>
   you can sit with me but I don't guarantee I'll talk<br>
   artist, anatomy and music lover, aspiring vinyl collector and proud Countdown To Extinction owner<br>
