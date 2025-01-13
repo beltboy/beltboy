@@ -1,3 +1,4 @@
+
 <p align="center">
 <i>"The rain comes down, cold wind blows <br>
 The plans we made are back up on the road"</i><br>
@@ -21,4 +22,7 @@ beltboy/dino || 18 || he/him<br>
 <p align="center">
 <i>"Turn up my collar, welcome the unknown<br>
 Remember that you said "One day you'll walk <a href="https://www.youtube.com/watch?v=d8CS_dmC-dI">alone</a>"</i>
+</p>
+<p align="center">
+<img src="https://komarev.com/ghpvc/?username=beltboy7&style=flat-square&color=5b0827&label=PROFILE+VIEWS"/>
 </p>
