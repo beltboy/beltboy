@@ -15,7 +15,7 @@ beltboy/dino || 19 || he/him<br>
   you can sit with me but I don't guarantee I'll talk<br>
   artist, anatomy, CARS and music lover, aspiring vinyl collector and proud Countdown To Extinction owner<br>
       no dni i don't care but i block freely<br>
-  <a href="https://twitter.com/_Dolpha_">twt</a>; <a href="https://www.instagram.com/_dolpha_/">insta</a>; <a href="https://yourmom.123guestbook.com/">guestbook</a><br>
+  <a href="https://twitter.com/_Dolpha_">twt</a>; <a href="https://www.instagram.com/_dolpha_/">insta</a>; <a href="https://yourmom.123guestbook.com/">guestbook (old)</a>; <a href="https://megadeth.atabook.org/">atabook (new)</a><br>
 <a href="https://rentry.co/commissionsheet">commission sheet</a>
 </p> 
 
