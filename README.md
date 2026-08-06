@@ -10,10 +10,12 @@ The plans we made are back up on the road"</i><br>
 
 <p align="center">
 <strong>About me</strong><br>
-beltboy/dino || 19 || he/him<br>
+dino || 19 || he/him<br>
   don't copy my skins, you can ask for inspo<br>
-  you can sit with me but I don't guarantee I'll talk<br>
-  artist, anatomy, CARS and music lover, aspiring vinyl collector and proud Countdown To Extinction owner<br>
+  you can sit with me but I don't guarantee I'll talk, I am OFFTAB 99% of the time<br>
+      ask me for my discord and I'll give it, best way to talk to me is there<br>
+      ive got a life outside of this game >_<<br>
+  artist, anatomy, CARS and music lover, aspiring vinyl collector<br>
       no dni i don't care but i block freely<br>
   <a href="https://twitter.com/_Dolpha_">twt</a>; <a href="https://www.instagram.com/_dolpha_/">insta</a>; <a href="https://yourmom.123guestbook.com/">guestbook (old)</a>; <a href="https://megadeth.atabook.org/">atabook (new)</a><br>
 <a href="https://rentry.co/commissionsheet">commission sheet</a>
