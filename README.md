@@ -26,9 +26,7 @@ dino || 19 || he/him<br>
 Remember that you said "One day you'll walk <a href="https://www.youtube.com/watch?v=d8CS_dmC-dI">alone</a>"</i>
 </p>
 <p align="center">
-<img src="https://komarev.com/ghpvc/?username=beltboy7&style=flat-square&color=5b0827&label=PROFILE+VIEWS"/>
-      <p align="center">
   <a href="https://github.com/kittinan/spotify-github-profile">
-    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=3u439uqvr6awh6t62iae46bbt&cover_image=true&theme=default&show_offline=false&background_color=121212&interchange=false&profanity=false&hide_remaster=false&bar_color=299a59&bar_color_cover=true">
+    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=3u439uqvr6awh6t62iae46bbt&cover_image=true&theme=spotify-embed&show_offline=false&background_color=121212&interchange=false&profanity=false&hide_remaster=false&mode=dark&bar_color=299a59&bar_color_cover=true">
   </a>
 </p>
