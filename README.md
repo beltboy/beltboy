@@ -28,7 +28,7 @@ Dino<br>
 
 <p align="center">
 <i>"Mesmerises one of the wedding guests<br>
-Stay here and listen to the nightmares of the sea<a href="https://www.youtube.com/watch?v=OSDZj_jh5cE">nightmares</a> of the sea alone"</i>
+Stay here and listen to the <a href="https://www.youtube.com/watch?v=OSDZj_jh5cE">nightmares</a> of the sea alone"</i>
 <p align="center">
   <a href="https://github.com/kittinan/spotify-github-profile">
     <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=3u439uqvr6awh6t62iae46bbt&cover_image=true&theme=natemoo-re&show_offline=false&background_color=121212&interchange=false&profanity=false&hide_remaster=false&bar_color=299a59&bar_color_cover=true">
