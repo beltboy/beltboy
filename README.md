@@ -29,7 +29,7 @@ Dino<br>
 
 <p align="center">
 <i>"Mesmerises one of the wedding guests<br>
-Stay here and listen to the <a href="https://www.youtube.com/watch?v=OSDZj_jh5cE">nightmares</a> of the sea alone"</i>
+Stay here and listen to the <a href="https://www.youtube.com/watch?v=OSDZj_jh5cE">nightmares</a> of the sea"</i>
 </p>
 <p align="center">
   <a href="https://github.com/kittinan/spotify-github-profile">
