@@ -12,7 +12,7 @@
       <img align="left" width="360" height="496" alt="beltboyooyy" src="https://github.com/user-attachments/assets/59ca8078-0540-439e-bcc1-1f010d52f041" />
 <strong>About me</strong><br>
 Dino<br>
-      19<br>
+      20<br>
   don't copy my skins, you can ask for inspo<br>
  offtab 99% of the time<br>
       ive got a life outside of this game >_<<br>
