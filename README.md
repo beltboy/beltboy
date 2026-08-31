@@ -23,6 +23,7 @@ Dino<br>
       no dni i don't care but i block freely<br>
             i DONT like proship or wtv you call yourselves now<br>
             im not fixing this anymore<br>
+            prince of heart, by the way<br>
   <a href="https://twitter.com/_Dolpha_">twt</a>; <a href="https://www.instagram.com/_dolpha_/">insta</a>; <a href="https://yourmom.123guestbook.com/">guestbook (old)</a>; <a href="https://megadeth.atabook.org/">atabook (new)</a><br>
 <a href="https://rentry.co/commissionsheet">commission sheet</a>
 </p> 
