@@ -17,7 +17,7 @@ Dino<br>
  offtab 99% of the time<br>
       ive got a life outside of this game >_<<br>
   cars lover<br>
-            i love homestuck, lisa the painful (trilogy) and hopeful, forza horizon 6, some need for speed games<br>
+            i love CYBERPUNK(especially), homestuck, lisa the painful (trilogy) and hopeful, forza horizon 6, some need for speed games<br>
             music wise i love megadeth, iron maiden (larp), testament, xentrix, anthrax, artillery and ive seen them live<br>
             talk to me about anything i love making friends on here<br>
       no dni i don't care but i block freely<br>
