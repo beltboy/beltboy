@@ -18,7 +18,7 @@ Dino<br>
       ive got a life outside of this game >_<<br>
   cars lover<br>
             i love CYBERPUNK(especially), homestuck, lisa the painful (trilogy) and hopeful, forza horizon 6, some need for speed games<br>
-            music wise i love megadeth, iron maiden (larp), testament, xentrix, anthrax, artillery and ive seen them live<br>
+            music wise i love megadeth, iron maiden (larp), testament, xentrix, anthrax, artillery and ive seen them <a href="https://rentry.co/dancingwalkingrearrangingfurniturebabsisshoppingiletthebirdout"> live</a><br>
             talk to me about anything i love making friends on here<br>
       no dni i don't care but i block freely<br>
             i DONT like proship or wtv you call yourselves now<br>
